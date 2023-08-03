@@ -1,0 +1,2 @@
+# AndroidTraining_Tutorial_204970
+イチュンレさんトレーニング用
